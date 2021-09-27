@@ -20,7 +20,7 @@ Is it a nuisance to send huge files to others.File To Link Bot is for you.This b
 ### 🔥 OWNER  &  CREATOR 🔥
 
 ```
-Sadew Jayasekara
+Anuja Supulsara
  
 ©️2021 SDBOTs All Rights Reserved
  
